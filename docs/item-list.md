@@ -24,6 +24,8 @@
 
 * 商売繁盛札
 * 招き猫（左手）
+  * https://item.rakuten.co.jp/manekineko-orner/ka-31/
+  * https://item.rakuten.co.jp/manekineko-orner/7573/
 * 扇子×人数分
 
 ### 参考情報
