@@ -26,6 +26,7 @@
 * 招き猫（左手）
   * https://item.rakuten.co.jp/manekineko-orner/ka-31/
   * https://item.rakuten.co.jp/manekineko-orner/7573/
+  * 良さそうだけど右手だった→ http://shop.acty-daimonya.com/?pid=107056127
 * 扇子×人数分
 
 ### 参考情報
